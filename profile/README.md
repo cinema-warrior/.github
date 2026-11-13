@@ -9,4 +9,4 @@ Cinema Warrior brings local theater schedules, venue information and direct
 ticket links together. Editorial review and source provenance support a
 calendar built for film communities.
 
-Published by Hudson Valley Film Calendar LLC.
+Published by Cinema Warrior LLC. Mail to PO Box 52, Tivoli, NY 12583.
